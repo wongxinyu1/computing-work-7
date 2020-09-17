@@ -11,3 +11,6 @@ The night, dark sky made it hard to look around, and the thorny leaves made it h
 Carl's legs felt like they were going to give way.
 He slowly collapsed to the ground, helpless and simply exhausted.
 He let out one last breath, and muttered, "Help me..."
+Darkness engulfed him.
+
+
